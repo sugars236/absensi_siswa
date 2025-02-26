@@ -1,1 +1,2 @@
+biji ridho kapalan
 
